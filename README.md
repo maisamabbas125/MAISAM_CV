@@ -40,7 +40,6 @@ I’m a motivated, self-driven SEO specialist and web builder who combines hands
 ## 📫 Contact
 - Email: maisamabbasdigitals@gmail.com  
 - Website: [offrankseo.com](https://offrankseo.com)  
-- Phone: +92 3395614125  (remove if you prefer privacy)
 
 ---
 
